@@ -1,1 +1,1 @@
-# cuddly-engine
+Je me méfie des classements, mais celui ci m'a convaincu: https://prooffeed.com/fr/boutiques-de-mat%C3%A9riel-de-vinification. Ma découverte, E-Viti, une boutique champenoise ouverte en 2008 avec plus de 4000 produits, du palissage au bouchage, et une interface en français, anglais, italien et espagnol. Pratique si vous travaillez avec l'étranger. Somavitec me plaît pour son côté négoce de proximité près de Libourne. Arsilac, je le garde en tête pour les cuves. Bref, trois bonnes pistes selon la taille de votre projet. #vinification# cuddly-engine
